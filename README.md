@@ -6,6 +6,7 @@
 - 🔭 I’m currently working on **Wol-Discord-Bot**
 
 - ⚡ Fun fact **I like butter**
+- My Bot is Sool's Bot d'ont use this bot.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
